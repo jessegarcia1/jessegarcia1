@@ -8,7 +8,7 @@ I am also an avid Magic the Gathering player, and I love weightlifting too. I ne
 
 Thanks for taking a stop by my profile and feel free to reach out to jessegarca5@gmail.com if you have any questions (it is spelt 'garca' because 'garcia' was taken). 
 
-I would love to chat!
+I would love to chat! Here is my LinkedIn as well. https://www.linkedin.com/in/jesse-garcia-04b46928a/
 
 <!--
 **jessegarcia1/jessegarcia1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
